@@ -1,0 +1,4 @@
+HI Im Cherilyn Flordeliz Macabuhay, I'm interested in looking for the job online like Home Based Online Teacher, Virtual Assistant and Customer Service Representative.- 
+-I am a Graduate of Bachelor of Business in Teachers' Education at the Polytechnic University of the Philippine tooking up Technology and Livelihood Education Major in Entrepreneurship. And also i completed a Master's Degree in Union College Laguna finishing Master's of Arts in Education major in Administration and Supervision.Alongside with the Bridging Program in Values Education which helps me develop on how can I instill character on my students'.
+I have a decade of experience as a teacher in a department of education. 
+And also i am a club adviser for almost 5 years, as a club adviser, Handling a alot of community service is my top priority. That projects not only helps the community but recognized me as an oustanding teacher in our department for two consecutive school year.
